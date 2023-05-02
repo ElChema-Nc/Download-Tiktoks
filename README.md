@@ -2,4 +2,4 @@
 
 ### Creado por el Chema!
  
-[![GyutaroNc](https://github.com/GyutaroNc.png?size=400)](https://github.com/GyutaroNc) 
+[![GyutaroNc](https://github.com/ElChema-Nc.png?size=400)](https://github.com/ElChema-Nc) 
